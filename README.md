@@ -11,4 +11,7 @@ Hello
 Beef Sausage
 Alvin
 Pls seek help!
-Beef sausages give you tired jaws!
+
+Tip of the day : Beef sausages give you tired jaws!
+
+Tip of the day : Never bring swimming towels to class
