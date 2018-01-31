@@ -15,3 +15,5 @@ Pls seek help!
 Tip of the day : Beef sausages give you tired jaws!
 
 Tip of the day : Never bring swimming towels to class
+
+Hahaha both of you need help
